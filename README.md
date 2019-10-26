@@ -7,26 +7,10 @@ In order to check things out from the IDM equipment room, you are required to ca
 ## HOW DO I GET INSURANCE?
 Your family may have insurance that covers material goods, or you may have renters insurance already. If so, bring in a copy of the policy and we’ll check to make sure it’s all good. 
 
-If your insurance doesn’t cover our equipment, or you don’t have it yet, College Student Insurance: http://www.collegestudentinsurance.com can cover you for $90/year. The benefit of this is not only can you check stuff out, but all your other stuff is covered too.
+If your insurance doesn’t cover our equipment, or you don’t have it yet, College Student Insurance: http://www.collegestudentinsurance.com can cover you for $90/year. The benefit of this is not only can you check stuff out, but all your personal bellongings are covered too.
 
-The handy chart below shows all the stuff this insurance covers.
+Things that CSI Covers:  Computers and laptops, Cell phones, iPhones and other smartphones, iPods, MP3 players and Electronics, Books, Clothes, Bicycles. 
 
-Things that CSI Covers
-What CSI protects against
-Computers and laptops
-Cell phones
-iPhones and other smartphones
-iPods, MP3 players and Electronics
-Books
-Clothes
-Bicycles
-Theft
-Fire
-Accidental Damage
-Flood
-Earthquake
-Vandalism
-Electrical Damage
-Water Damage
+What CSI protects against: Theft, Fire, Accidental Damage, Flood, Earthquake, Vandalism, Electrical Damage, Water Damage
 
 If you need help with signing up, or if this unclear, please contact Scott or Elton.
