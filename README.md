@@ -14,3 +14,5 @@ Things that CSI Covers:  Computers and laptops, Cell phones, iPhones and other s
 What CSI protects against: Theft, Fire, Accidental Damage, Flood, Earthquake, Vandalism, Electrical Damage, Water Damage
 
 If you need help with signing up, or if this unclear, please contact Scott or Elton.
+
+![animated image of insurance website](https://github.com/IDMNYU/ER_Insurance/blob/master/insurance.gif?raw=true "College Student Insurance website demo")
