@@ -1,4 +1,4 @@
-# Equipment Room Insurance [](#start)
+# Equipment Room Insurance [start](#start)
 
 ## IDM equipment room insurance requirement
 
