@@ -1,8 +1,10 @@
-# Equipment Room Insurance
+# IDM Equipment Insurance
 
-## IDM equipment room insurance requirement
+## IDM equipment insurance requirement
 
-In order to check things out from the IDM equipment room, you are required to carry insurance for at least $3,000. We need proof of this insurance before you can get the stuff you need to complete your assignments. This does a number of things, but mostly it protects you from having to pay thousands of dollars out of pocket if you break/lose/damage any of the equipment. There's also the added bonus in the recommended insurance below that all of your stuff gets covered too. So if you lose your phone or drop your laptop on the subway tracks, your purchase will be insured and covered.
+In order to receive materials for your IDM class(es) this semester, you are required to carry insurance for at least $3,000. We need proof of this insurance before you can get the stuff you need to complete your assignments. This does a number of things, but mostly it protects you from having to pay thousands of dollars out of pocket if you break/lose/damage any of the equipment. There's also the added bonus in the recommended insurance below that all of your stuff gets covered too. So if you lose your phone or drop your laptop on the subway tracks, your purchase will be insured and covered.
+
+We are requiring this because a number of the things you are receiving must be returned at the end of the semster. If you break, lose, or otherwise damage this equipment, which belongs to the University, you are responsible for its full replacement.
 
 ## HOW DO I GET INSURANCE?
 Your family may have insurance that covers material goods, or you may have renters insurance already. If so, bring in a copy of the policy and we’ll check to make sure it’s all good. 
