@@ -9,7 +9,7 @@ We are requiring this because a number of the things you are receiving must be r
 ## HOW DO I GET INSURANCE?
 Your family may have insurance that covers material goods, or you may have renters insurance already. If so, email a copy of the policy and we’ll check to make sure it’s all good.
 
-If your insurance doesn’t cover our equipment, or you don’t have it yet, [College Student Insurance http://www.collegestudentinsurance.com](http://www.collegestudentinsurance.com) can cover you for $90/year. The benefit of this is not only can you check stuff out, but all your personal bellongings are covered too.
+If your insurance doesn’t cover our equipment, or you don’t have it yet, [College Student Insurance at http://www.collegestudentinsurance.com](http://www.collegestudentinsurance.com) can cover you for $90/year. The benefit of this is not only can you check stuff out, but all your personal bellongings are covered too.
 
 Things that CSI Covers:  Computers and laptops, Cell phones, iPhones and other smartphones, iPods, MP3 players and Electronics, Books, Clothes, Bicycles. 
 
